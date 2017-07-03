@@ -1,2 +1,2 @@
 # anti-smoking
-Just a bunch of anto-smoking stuff
+Just a bunch of anti-smoking stuff
